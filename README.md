@@ -1,2 +1,2 @@
 # 1st-attend
-Upgrade it
+Hell nah is trash
